@@ -1,1 +1,1 @@
-Konsgjn---585https://test-mxn-api.fyinformation.cc414512
+Konsgjn---585api.threecolombia.vip414512
